@@ -16,7 +16,7 @@
 - Any project that helps me grow as a developer
 
 ## 📫 How to reach me ...
-- [Email](Valkov.Hstudents.softuni.bg)
+- Email - Valkov.Hstudents.softuni.bg
 ## 😄 
 
 ## ⚡ Fun fact ...
