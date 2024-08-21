@@ -17,6 +17,7 @@
 
 ## 📫 How to reach me ...
 - Email - Valkov.H@students.softuni.bg
+- Second email - galiganuda@gmail.com
 ## 😄 
 
 ## ⚡ Fun fact ...
